@@ -1,0 +1,1 @@
+2nd attempt at the Google replication project, this time i actually dedicated time and it paid off, im happy, took 4 days, first 3 days only about 3 hours were spent total, on the fourth day i lucked out and had the day alone so i was able to complete it.
